@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Léo Carvalho 😁
+## Bem-vindo(a) ao perfil de Leonardo de Carvalho 😁
 
  <div>
    <a href="https://github.com/leeohcarvalho">
